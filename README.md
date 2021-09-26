@@ -45,7 +45,7 @@
 
 ![NVST](https://user-images.githubusercontent.com/39569027/134807525-c2a1ab13-083e-4e64-925e-cd8805a97d76.png)
 
-![indian](https://user-images.githubusercontent.com/39569027/134807974-33ae27b3-a8a1-4cdc-b546-e0e002dc78cd.png)
+![indian](https://user-images.githubusercontent.com/39569027/134808121-592f7435-417e-45dc-bca0-4e614aa40f7e.png)
 
 
 
