@@ -25,3 +25,5 @@
 
 ![DPS](https://user-images.githubusercontent.com/39569027/134805089-bf919349-1d28-4902-9f0a-4ec9a32e454f.png)
 
+![DRS](https://user-images.githubusercontent.com/39569027/134805211-49b59ca3-fe59-4e0c-8728-f1f02710af88.png)
+
