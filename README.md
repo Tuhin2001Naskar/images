@@ -47,6 +47,6 @@
 
 ![indian](https://user-images.githubusercontent.com/39569027/134808121-592f7435-417e-45dc-bca0-4e614aa40f7e.png)
 
-![seven-pizza-in-wood-fire](https://user-images.githubusercontent.com/39569027/134808370-18a559ae-7a26-4070-87ee-12c207896292.jpeg)
+![WFP](https://user-images.githubusercontent.com/39569027/134808474-5e009437-e7fe-4b97-b3e0-5650be2abace.png)
 
 
