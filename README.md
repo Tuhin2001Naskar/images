@@ -57,4 +57,6 @@
 
 ![PAR](https://user-images.githubusercontent.com/39569027/134809183-60437743-3a97-4a83-96af-8b924d6b782a.png)
 
+![DES](https://user-images.githubusercontent.com/39569027/134809326-a5345be9-681a-42dc-ade3-ad09aef8958f.png)
+
 
