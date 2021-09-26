@@ -12,3 +12,5 @@
 ![malt](https://user-images.githubusercontent.com/39569027/134804105-8231f2cc-06b4-4c17-86f9-7c1dde417a32.png)
 
 ![DSI](https://user-images.githubusercontent.com/39569027/134804273-a4de52f1-5fc1-40c8-9e96-46d5bb03f6d8.png)
+
+![PSI](https://user-images.githubusercontent.com/39569027/134804393-ce754a84-9efc-488a-81b3-fbc15645d1d4.png)
