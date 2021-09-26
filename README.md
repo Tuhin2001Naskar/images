@@ -16,3 +16,5 @@
 ![PSI](https://user-images.githubusercontent.com/39569027/134804393-ce754a84-9efc-488a-81b3-fbc15645d1d4.png)
 
 ![RSI](https://user-images.githubusercontent.com/39569027/134804587-96091fb5-0bb0-4cdc-8cc3-227381f82bb5.png)
+
+![TNS](https://user-images.githubusercontent.com/39569027/134804685-46a92a8e-9e2e-4b7f-92ed-d8a90cee5d74.png)
