@@ -8,3 +8,5 @@
 ![White Rum](https://user-images.githubusercontent.com/39569027/134803790-54e75c5a-4a22-49d3-8445-f0c258df770d.png)
 
 ![Dark](https://user-images.githubusercontent.com/39569027/134803934-900d8475-77f1-4da9-90bd-6878f4187853.png)
+
+![malt](https://user-images.githubusercontent.com/39569027/134804105-8231f2cc-06b4-4c17-86f9-7c1dde417a32.png)
